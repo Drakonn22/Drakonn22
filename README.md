@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Drakonn22
+- 👀 I’m interested in 3D-printing
+- 🌱 I’m currently learning 3D-modelling
